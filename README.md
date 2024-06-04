@@ -1,0 +1,2 @@
+# zksync-Zcat-Meme-Token
+YOUR TICKET TO THE MEME REVOLUTION ON ZKSYNC
